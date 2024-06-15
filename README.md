@@ -6,4 +6,4 @@ Variedad de Diseños: Ofrecemos una amplia gama de diseños únicos y personaliz
 Materiales Sostenibles: Utilizamos materiales reciclados y biodegradables en nuestras tote bags, asegurando que cada compra tenga un impacto positivo en el medio ambiente.
 Personalización: Además de nuestros diseños estándar, ofrecemos opciones de personalización para que puedas crear una tote bag única que refleje tu estilo personal.
  Cómo Comprar
-Visita nuestro sitio web [www.greengogh.com](https://www.greengogh.com) para explorar nuestra colección completa de tote bags y realizar tu pedido de manera segura y conveniente. ¡Ayúdanos a hacer del mundo un lugar más verde con cada bolsa que vendemos!
+Visita nuestro sitio web para explorar nuestra colección completa de tote bags y realizar tu pedido de manera segura y conveniente. ¡Ayúdanos a hacer del mundo un lugar más verde con cada bolsa que vendemos!
